@@ -3,7 +3,7 @@
 
 <br>
 
-*[Telegram](https://t.me/CuhMeme/1) | [GK9GGbPbEX8NXZzJJEgFZt47uPLU4hzWbvh51xSzTmhA](https://solscan.io/token/GK9GGbPbEX8NXZzJJEgFZt47uPLU4hzWbvh51xSzTmhA#holders) | [Website](https://cuhmeme.github.io/) | [Rugcheck](https://rugcheck.xyz/tokens/GK9GGbPbEX8NXZzJJEgFZt47uPLU4hzWbvh51xSzTmhA)*
+*[Telegram](https://t.me/CuhMeme/1) | [GK9GGbPbEX8NXZzJJEgFZt47uPLU4hzWbvh51xSzTmhA](https://solscan.io/token/GK9GGbPbEX8NXZzJJEgFZt47uPLU4hzWbvh51xSzTmhA#holders) | [Website](https://cuhmeme.github.io/) | [Rugcheck](https://rugcheck.xyz/tokens/GK9GGbPbEX8NXZzJJEgFZt47uPLU4hzWbvh51xSzTmhA) | [Deslab (Swap)](https://v3.dexlab.space/swap?pay=So11111111111111111111111111111111111111112&receive=GsNzxJfFn6zQdJGeYsupJWzUAm57Ba7335mfhWvFiE9Z)*
 
 <br>
 <br>
